@@ -2,4 +2,8 @@
 
 meu nome é acsa 
 
- - estou esutudando no Alura
+ - estou estudando no Alura
+
+### você pode entrar em contato comigo:
+
+- acsa.vieira@escola.pr.gov.br
