@@ -7,3 +7,11 @@ meu nome é acsa
 ### você pode entrar em contato comigo:
 
 - acsa.vieira@escola.pr.gov.br
+
+ ![](https://tenor.com/view/gidle-i-sway-klaxon-minnie-yuqi-gif-17055697419286304872
+ 
+ 
+ 
+ 
+ 
+ )
