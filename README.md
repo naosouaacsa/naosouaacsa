@@ -8,10 +8,4 @@ meu nome é acsa
 
 - acsa.vieira@escola.pr.gov.br
 
- ![](https://tenor.com/view/gidle-i-sway-klaxon-minnie-yuqi-gif-17055697419286304872
- 
- 
- 
- 
- 
- )
+ ![](https://tenor.com/view/gidle-i-sway-klaxon-minnie-yuqi-gif-17055697419286304872)
